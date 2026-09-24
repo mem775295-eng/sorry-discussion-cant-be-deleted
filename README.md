@@ -4,6 +4,8 @@
 ## IEEE ma mna krdia mna us matlab ma nhi kra tha but theek tha mri galti thi 
 ### Phir tumna khud kaha tha mehak k through deta message yaad nhi hoga tumko
 
+# mna tumha github par reply isliye likh kar dia because mjha dar lag raha tha, mna tumhari mail ka jawab dia tha because i was worried k tum pata nhi ksi hogi, mna tumhara khayal ma kiya tha muhabbat aur dosti ka farq smjh jana chahiye tha i said k koi baat nhi tum pareshan mat ho kuch nhi hua
+
 # After that baat krna kab matlab tha I handed it over to you tum mjha ab opar lao ya degrade kro ya tum par tha na
 ## tum mjhsa lara gaye paiso par jhoot nhi bolna and tumha pata tha mra pas jo hoga ma tumha dedo ga k 
 ### but tumna sath nhi dia tum larna lag gaye but it was okay 
